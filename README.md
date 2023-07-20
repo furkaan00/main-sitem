@@ -1,1 +1,1 @@
-responsive , divler , daha gelismis sekilde gelcek beyler idare edin simdilik mk
+simdilik bu kadar beyler responsive yakında gelcek
