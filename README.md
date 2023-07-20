@@ -1,1 +1,1 @@
-daha gelişmis sekilde gelcek beyler simdilik idare edin mk
+responsive , divler , daha gelismis sekilde gelcek beyler idare edin simdilik mk
